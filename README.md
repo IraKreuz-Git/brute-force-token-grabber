@@ -29,7 +29,4 @@ Where do you expect to get the Timestamp? The reason why Bot ID and Timestamp (U
 
 **Are you gay?**
 No.
-
-The Files
-https://github.com/IraKreuz-Git/the-files/tree/main
 > Thank you for reading and please fuck my life 😊
